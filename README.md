@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Anrik91
+- 👀 I’m interested in programing, web-editing.
+- 🌱 I’m currently studying at University of Malmö
